@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @Xnn82
+- 👋 Hi, I’m @Xnn82 or Soloarcane(Xnn) on Discord - my current published mods can be found here: www.nexusmods.com/sekiro/users/6357153?tab=user+files
 - 👀 I’m interested in ... Sekiro modding atm, and just about everything that comes with it :)
 - 🌱 I’m currently learning ... anything my brain is able to comprehend and grabs my interest..
 - 💞️ I’m looking to collaborate on ... modding in general and anything affiliated with that :D
